@@ -1,0 +1,21 @@
+---
+title: On Writing
+categories: [Essay]
+tags: [writing]
+---
+
+Many years ago, long before I was burdened by the worries of adulthood, I loved reading. My passion for the written word, particularly in English, opened my eyes to fantastical places and colourful characters that shaped my inner world. To me, reading was the ultimate form of freedom: I could use my imagination to experience a different reality from my own. I revelled in the escapism, treasuring my nightly refuge into my precious books, where I found solace and comfort in the words of a page, carefully crafted by a skillful author to tell me a gripping tale.
+
+At some point in my life, I wanted to write. I wanted to share my joy in stories by creating my own fictional universe filled with interesting but relatable characters. At first, I wasn’t very good: my writing suffered due to my immaturity and lack of lived experience. Nevertheless, each piece of writing led me to write even better pieces. As I honed my skills, I showed my writing to friends and family, hoping they would give valuable feedback to help me improve my writing. Yet, the more I showed them my writing, the more I realised that they didn’t care. At first, I attributed this to them having not read as broadly as I have. Then, I realised that they just didn’t share my enthusiasm for the craft of writing, and by extension, the writing that I shared with them.
+
+Eventually, I stopped sharing my writing. I continued to churn out half-baked drafts that were quickly discarded for more half-baked drafts. I found myself going nowhere, stuck with the same old uninspired, clichéd ideas I had so desperately tried to avoid. No matter what I wrote, it just wasn’t good enough. My perfectionism and pursuit of originality petrified me with self-doubt, which led me to the thing most writers dreaded: writer’s block.
+
+Like the archetypal wizard who locked himself in his magical library, I toiled away alone, only sharing small glimpses of my writing to those who showed genuine interest. My writing suffered as I struggled to keep up with the academic demands of high school. All this while, my stories were mostly tragic. They were perhaps melancholic reflections of my state of mind. I was never formally diagnosed with depression, but I definitely felt depressed. I remember going through a negative feedback loop, spiralling ever deeper into darkness. At my lowest point, my English teacher at the time, having imposed on me unreasonable expectations, only ever ridiculed my writing.
+
+In some ways, my writing could have been a call for help. But no one came to my aid. As is so common in Asian culture, anything to do with mental health was suppressed and quietly ignored. Writing became my outlet to express my negative emotions. I did eventually see a school counsellor and had an epiphany along the way, but perhaps that’s a story for another day.
+
+After graduating high school and enrolling into university, I joined a creative writing group led by a university lecturer. The group was composed of students from various faculties, all of them amateur writers writing for fun. Here, I would continue to hone my skills, but without the self-critical lens that I used to view my earlier writing. Among the writing group members, my writing was appreciated, cherished and celebrated. Our weekly sessions became the highlight of my university life. Over time, our members came and went, but our creative spirit persisted. Years later, we still meet online for a quick writing session now and then.
+
+Looking back, I should have been more confident in my writing. There were many things holding me back, causing me to self-censor out of fear and doubt. Maybe I could have overcome those obstacles if I had enough patience and perseverance. I realise that I still have that spark of creativity in me, urging me to write something, anything.
+
+Which brings me to this essay where I am writing about writing. If you’ve read this far, thank you for putting up with my rambling thoughts. I want to write more again, to express myself in ways that challenge and surprise me. I want to pen a new story with these words of mine. Whether this is a one-off thing or just the beginning of an epic saga, I hope you’ll join me in rediscovering my writing voice again.
