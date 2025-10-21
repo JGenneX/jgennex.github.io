@@ -16,7 +16,7 @@ Objects break down or wear out all the time. More often than not, it is far chea
 
 Like most people, I too have a junk drawer full of obsolete tech. The rapid pace of technological progress ensures that those devices will remain trapped in that drawer until the day I decide to get rid of them. It saddens me that most of these devices, once loved and cherished, were simply cast aside for newer and shinier things.
 
-Do we need more stuff? When I was a teenager, I often struggled to grasp people’s obsession with owning the latest stuff. New watch, new clothes, new phone, new item from current trend. The more expensive the item, the higher your social status. I never understood why people keep up with the Jonesses. It all felt hollow and meaningless to me.
+Do we need more stuff? When I was a teenager, I often struggled to grasp people’s obsession with owning the latest stuff. New watch, new clothes, new phone, new item from current trend. The more expensive the item, the higher your social status. I never understood why people keep up with the Joneses. It all felt hollow and meaningless to me.
 
 Another thing that I never understood was materialism. Perhaps we use materialism as a way to fill a void inside us. It distracts us from our otherwise mundane life, giving us a reason to earn money to buy more stuff. So we buy that brand new item and then… then what? Use it for a while until a newer version comes along for us to buy and replace it? This perpetual cycle, as absurd as it sounds, is capitalism working as intended.
 
