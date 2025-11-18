@@ -1,6 +1,6 @@
 ---
 icon: fa-solid fa-book
-order: 4
+order: 5
 ---
 
 Below is an incomplete list of works that I have referenced in my blog posts. Their inclusion means that I have thoroughly enjoyed them at some point in my life and have been influenced by them in one way or another. Whether or not I recommend them now is different story. But I do encourage you to check them out at your own leisure.
